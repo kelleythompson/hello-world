@@ -1,3 +1,5 @@
 # hello-world
-just learning
+just screwing around
 this looks pretty ridicoulous (given I cant spell)
+yada yada
+and yada yada
